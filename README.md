@@ -1,4 +1,4 @@
-# STATE-OF-AFFAIRS-PUBLIC-NOTICE
+# STATE-OF-EARTH-PUBLIC-NOTICE
 # 🌍 STATE OF THE EARTH – PUBLIC NOTICE
 
 ### 🔥 Atmospheric Emergency & Reforestation Mandate  
